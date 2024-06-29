@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **o.p.anupamashyamalie@gmail.com**
   
-- ⚡ Fun fact **Call me as KD**
+- ⚡ Fun fact **Call me as OP**
 
 </td>
 <td width="50%" align="center">
